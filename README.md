@@ -13,7 +13,7 @@
 
 <p align="center">
   <img src="https://files.catbox.moe/cs0q1r.gif" width="110" />
-  <img src="https://files.catbox.moe/tbu0il.gif" width="200" />
+  <img src="https://file.garden/ZhOd77cFMh_Z3LOb/neocities/sprout/Resources/deco%20imvu%20badge%20buttons/BloodthirstyVIP.gif?v=1716182706662" width="200" />
   <img src="https://i.postimg.cc/xTqHsqyM/gray.gif" width="100" />
   <img src="https://files.catbox.moe/5eqdjt.gif" width="103" />
 </p>
@@ -34,7 +34,7 @@
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/4t50kv.gif" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/WFchz2kd/mo142.png" width="50" /> ㅤㅤ <img src="https://i.postimg.cc/VSyVJMZz/red103.gif" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/3Rj8CzwG/yjl68s.gif" width="50" />
+  <img src="https://64.media.tumblr.com/7ea6550dfcc2bcbf2472484ee0f86d22/e7d74065fc3a0376-bf/s75x75_c1/215e40f67ac2e4304e5737b4dcfab3a511dd9112.gif" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/WFchz2kd/mo142.png" width="50" /> ㅤㅤ <img src="https://i.postimg.cc/VSyVJMZz/red103.gif" width="50" /> ㅤㅤ<img src="https://i.postimg.cc/3Rj8CzwG/yjl68s.gif" width="50" />
 </p>
 
 <p align="center">
@@ -56,7 +56,7 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
   <img src="https://i.postimg.cc/1tWygmdX/gray.gif" width= "110">
   <img src="https://i.postimg.cc/hjnX8tMs/gray.gif" width= "120">
   <img src="https://i.postimg.cc/Fzs1qCMw/black.gif" width="130">
-  <img src="https://files.catbox.moe/hm6tnl.gif" width="120">
+  <img src="https://file.garden/ZhOd77cFMh_Z3LOb/neocities/sprout/Resources/deco%20imvu%20badge%20buttons/CuddlyVIP.gif?v=1716183164969" width="122">
 </p>
 
 ![gundiv](https://i.ibb.co/ycDXh535/Untitled147-20260417222317.png)
@@ -90,12 +90,12 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 <a href="https://github.com/pizzagamebeta">
   <img align="left" width="200" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
 </a>
-A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHE LIKES LIO MORE THAN YOU MALA SUCK IT UPㅤㅤ
+A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤNO THIRST FOR BLOOD THANKFULLYㅤㅤ
 <br clear="left" />
  ㅤㅤ ㅤㅤ
   ㅤㅤ ㅤㅤ
 <p align="right"> <img src="https://i.postimg.cc/1XP9wMFS/F4-D96001-21-D8-47-F7-90-AC-429-CBA68-A5-A4.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/X7Gwxp4z/red.gif" width="100"> ㅤㅤ<img src="https://64.media.tumblr.com/e766542b34586c4cfae4e5d4538fb903/0cb1053f7d3f6121-04/s75x75_c1/e50c9e3c2c5fa82c25f25c6c9ad73b4f678112ae.gifv" width="30"> </p>
- <a href="https://github.com/pidawn">
+ <a href="https://github.com/t0xcitepirxte">
   <img align="right" width="240" src="https://i.ibb.co/whzB0Mqs/Untitled154-20260416173441.png">
 </a>
   <p aligh="right"> A MAN ONCE SAID ABOUT THIS GUY... ㅤㅤGOT TO BE THE BEST PIRATE IVE EVER SEEN </p>
@@ -109,11 +109,11 @@ A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤSHE LIKES LIO MORE THAN YOU MALA SUCK IT UP
 A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
 <br clear="left" />  ㅤㅤ
 
-<p align="right"> <img src="https://files.catbox.moe/1fb8kh.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/cC6fpJY3/red.gif" width="150"> ㅤㅤ<img src="https://i.postimg.cc/mP04XhZh/tumblr-8d1eb4ed056588a2bcc70e0528797bfd-dc8e2bd8-1280.gif" width="30"> </p>
+<p align="right"> <img src="https://i.postimg.cc/Fss86gh9/IMG-2163.gif" width="30"> ㅤㅤ<img src="https://file.garden/ZhOd77cFMh_Z3LOb/neocities/sprout/Resources/deco%20imvu%20badge%20buttons/stickers-0f93e6497449b1c8e5eb276490ec1439.gif?v=1717145703113" width="150"> ㅤㅤ<img src="https://i.postimg.cc/mP04XhZh/tumblr-8d1eb4ed056588a2bcc70e0528797bfd-dc8e2bd8-1280.gif" width="30"> </p>
  <a href="https://github.com/1969bootboy">
   <img align="right" width="240" src="https://i.ibb.co/q3PnzSyR/Untitled152-20260416173355.png">
 </a>
-  <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤWHY DO I? ㅤㅤHIS SHIT SMELLSSSS </p>
+  <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤHIS SHIT SMELLSS </p>
 <br clear="right" />
 
 <p align="center">
@@ -124,10 +124,10 @@ A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
   <img src="https://i.ibb.co/Qj8rBdc8/Untitled160-20260419211050.png" height="" width="500">
 </p> 
 
-<p align="center"> MOONY ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤYUNA ㅤㅤLOO ㅤㅤKITTY </p>
+<p align="center"> MOONY ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤYUNA ㅤㅤLOO ㅤㅤJELLYFISH ㅤㅤZEN </p>
 <div align="center">
 
-[SIMON](https://github.com/zxuholic) ㅤㅤ[GABRIEL](https://github.com/THE-ARCHPRIEST) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA)
+[SIMON](https://github.com/zxuholic) ㅤㅤ[GABRIEL](https://github.com/THE-ARCHPRIEST) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA) ㅤㅤ[FAE](https://github.com/TheForestFae)
 
 MY MOOT'S COOL ASS [LAB RP](https://github.com/BUGLABORATORIES)
 </div>
