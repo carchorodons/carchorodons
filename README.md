@@ -90,30 +90,30 @@ YIKES I NEED TO WASH IT DONT I? ㅤㅤALAS MY DESIGNATION IS ROOK OR SILOㅤㅤM
 <a href="https://github.com/pizzagamebeta">
   <img align="left" width="200" src="https://i.ibb.co/LdRhmCpw/Untitled150.png">
 </a>
-A LIVIN' VAMPIRE! AND A BUNNY! ㅤㅤNO THIRST FOR BLOOD THANKFULLYㅤㅤ
+A LIVIN' VAMPIRE! ㅤㅤNO THIRST FOR BLOOD THANKFULLYㅤㅤ
 <br clear="left" />
  ㅤㅤ ㅤㅤ
   ㅤㅤ ㅤㅤ
 <p align="right"> <img src="https://i.postimg.cc/1XP9wMFS/F4-D96001-21-D8-47-F7-90-AC-429-CBA68-A5-A4.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/X7Gwxp4z/red.gif" width="100"> ㅤㅤ<img src="https://64.media.tumblr.com/e766542b34586c4cfae4e5d4538fb903/0cb1053f7d3f6121-04/s75x75_c1/e50c9e3c2c5fa82c25f25c6c9ad73b4f678112ae.gifv" width="30"> </p>
- <a href="https://github.com/t0xcitepirxte">
+ <a href="https://github.com/pirate-freak">
   <img align="right" width="240" src="https://i.ibb.co/whzB0Mqs/Untitled154-20260416173441.png">
 </a>
-  <p aligh="right"> A MAN ONCE SAID ABOUT THIS GUY... ㅤㅤGOT TO BE THE BEST PIRATE IVE EVER SEEN </p>
+  <p aligh="right"> THE BESTEST PIRATE YOUD EVER SEEN </p>
 <br clear="right" />
  ㅤㅤ ㅤㅤ
    ㅤㅤ ㅤㅤ
 <p align="left"> <img src="https://i.postimg.cc/HLhc0GWg/mo39.gif" width="30"> ㅤㅤ<img src="https://i.postimg.cc/9QZDS94M/red.gif" width="100"> ㅤㅤ<img src="https://i.postimg.cc/mD1c8dhF/mo38.gif" width="30"> </p>
-<a href="https://github.com/embracethegrace">
+<a href="https://github.com/finalhornet">
   <img align="left" width="250" src="https://i.ibb.co/Dg78YtxJ/Untitled151-20260416173330.png">
 </a>
 A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
 <br clear="left" />  ㅤㅤ
-
+ㅤㅤㅤㅤㅤ
 <p align="right"> <img src="https://i.postimg.cc/Fss86gh9/IMG-2163.gif" width="30"> ㅤㅤ<img src="https://file.garden/ZhOd77cFMh_Z3LOb/neocities/sprout/Resources/deco%20imvu%20badge%20buttons/stickers-0f93e6497449b1c8e5eb276490ec1439.gif?v=1717145703113" width="150"> ㅤㅤ<img src="https://i.postimg.cc/mP04XhZh/tumblr-8d1eb4ed056588a2bcc70e0528797bfd-dc8e2bd8-1280.gif" width="30"> </p>
- <a href="https://github.com/1969bootboy">
+ <a href="https://github.com/wastedsacrifice">
   <img align="right" width="240" src="https://i.ibb.co/q3PnzSyR/Untitled152-20260416173355.png">
 </a>
-  <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤHIS SHIT SMELLSS </p>
+  <p aligh="right"> WE MUTUALLY HATE EACH OTHER ㅤㅤ</p>
 <br clear="right" />
 
 <p align="center">
@@ -124,10 +124,10 @@ A SINNER? ㅤㅤNO ONES A SAINT RIGHT?ㅤㅤ ㅤ
   <img src="https://i.ibb.co/Qj8rBdc8/Untitled160-20260419211050.png" height="" width="500">
 </p> 
 
-<p align="center"> MOONY ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤYUNA ㅤㅤLOO ㅤㅤJELLYFISH ㅤㅤZEN </p>
+<p align="center"> ZORI ㅤㅤADAM ㅤㅤRAYY ㅤㅤONI ㅤㅤKOUI ㅤㅤSAGE ㅤㅤYUNA ㅤㅤLOO ㅤㅤJELLYFISH ㅤㅤZEN </p>
 <div align="center">
 
-[SIMON](https://github.com/zxuholic) ㅤㅤ[GABRIEL](https://github.com/THE-ARCHPRIEST) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/gestapoed) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA) ㅤㅤ[FAE](https://github.com/TheForestFae)
+[MOONY](https://github.com/beelzebubsbelovedd) ㅤㅤ[SOLAR](https://github.com/lobogirl) ㅤㅤ[SIMON](https://github.com/NULLSCXPE) ㅤㅤ[GABRIEL](https://github.com/THE-ARCHPRIEST) ㅤㅤ[JAMIE](https://github.com/bittersweetcookie) ㅤㅤ[JOHN](https://github.com/KickAKid) ㅤㅤ[EMRE](https://github.com/rylandpaw) ㅤㅤ[XAVIER](https://github.com/FLOWERPLASMA) ㅤㅤ[FAE](https://github.com/TheForestFae)
 
 MY MOOT'S COOL ASS [LAB RP](https://github.com/BUGLABORATORIES)
 </div>
